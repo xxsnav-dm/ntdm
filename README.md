@@ -2,7 +2,7 @@
 NT动漫是一个专注于提供高质量动漫资源的在线平台，致力于为广大动漫爱好者打造一个便捷、丰富的观看体验。该平台汇集了国内外众多热门新番、经典动漫以及高分作品，如《鬼灭之刃》《银魂》等，满足不同用户的多样化需求。NT动漫不仅提供丰富的动漫资源，还设有动漫资讯板块，帮助用户及时了解行业动态和新作发布信息。此外，NT动漫支持多种设备观看，用户可以通过PC、手机等设备随时随地享受动漫的乐趣。
 
 <p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/1577.html" target="_blank" ><strong>NT动漫最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/favorites/dongmanerciyuan" target="_blank" ><strong>动漫二次元资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://dongmandaohang.sodanav.com" target="_blank" ><strong>动漫网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
